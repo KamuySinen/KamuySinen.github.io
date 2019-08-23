@@ -1,0 +1,1 @@
+# KamuySinen.github.io
